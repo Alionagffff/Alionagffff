@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alionagffff
-- 👀 I’m interested in Sport, experiments.
+- 👀 I’m interested in Sport, experiments, animals.
 - 🌱 I’m currently learning in Polish school.
 - 💞️ I’m looking to collaborate on...hmmm...I don't know jet! :)
 - 📫 How to reach me...:) I will not tell you...search me yourself.
